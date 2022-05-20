@@ -1,0 +1,1 @@
+# LibreOffice_GOST_Templates
